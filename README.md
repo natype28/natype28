@@ -2,7 +2,7 @@
 - Ich interessiere mich hauptsächlich für Adobe-Skripte
 - I’m currently learning how to do life✌🏻🌌
 - 💞️ I'm looking to collaborate on nothing but myself
-- Reach me via social media @mystikseele on most platforms 
+- Reach me via email mystikseele@protonmail.com 
 - Pronouns: she/her TGW⚧️💗🥳
 - Fun fact: I am new to code & WSL 🌟
 FREE PALESTINE 🇵🇸
